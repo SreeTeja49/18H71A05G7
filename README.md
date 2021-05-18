@@ -8,7 +8,7 @@
 
 - Name:Boorla Sree Teja<br>
 - Mail Id:sreeteja15480@gmail.com<br>
-- Phone:+91 XXXXXXXXXX <br>
+- Phone:+91 9533881919 <br>
 - Address: Vijayawada <br>
 ### Education Details :
 
